@@ -1,2 +1,2 @@
 # Agy
-Два крутые предложения. Они полное AGY
+Two cool offers. They are full AGY
